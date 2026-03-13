@@ -1,1 +1,1 @@
-# -AI-Grievance-Redressal-Platform
+# AI-Grievance-Redressal-Platform
